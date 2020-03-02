@@ -20,6 +20,6 @@ dmitry.zhurau@gmail.com
 
 ### Languages
 
-* English - Intermidiate+
+* English - B1
 
-* German - Intermidiate
+* German - B1
